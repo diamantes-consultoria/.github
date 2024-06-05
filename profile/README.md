@@ -1,3 +1,1 @@
-# TI da Diamantes Consultoria
-
-Diamantes não para! 💎💎💎💎💎
+# Diamantes Consultoria - Setor de Desenvolvimento de Software 💎
